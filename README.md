@@ -1,2 +1,1 @@
-# backup-documenti
-tutte le cose da conservare
+Siamo qui per iniziare una nuova carriera!
